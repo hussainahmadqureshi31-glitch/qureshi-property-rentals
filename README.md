@@ -1,1 +1,1 @@
-# qureshi-property-rentals
+https://github.com/hussainahmadqureshi31-glitch/qureshi-property-rentals/upload/main# qureshi-property-rentals
